@@ -1,0 +1,1 @@
+Materi yang saya suka adalah publik speaking, karena mengajarkan saya supaya lebih tampil percaya diri ketika didepan semua orang

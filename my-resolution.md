@@ -1,0 +1,1 @@
+materi yang ingin saya pelajari di ruang guru adalah mengenal lebih dasar javascript. harapan saya ikut ruang guru ini supaya mengenali ilmu baru yang lain dari prodi saya 
